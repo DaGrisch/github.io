@@ -9,3 +9,5 @@ Arnold got famous, because he was body build word champion, called Mr. universum
 
 As Arnold said in Terminator:
 > I'll be back
+
+<img src="https://www.google.de/search?q=arnold+schwarzenegger&tbm=isch&source=iu&ictx=1&fir=m_-sbST8nzaNWM%252CHshGcWwIhCmxmM%252C_&vet=1&usg=AI4_-kQuw1-6HgSY9gTozj9MlmKoNUHMPA&sa=X&ved=2ahUKEwjR64zJsKLqAhWhyKYKHXdNAwQQ9QEwAnoECAcQBg#imgrc=m_-sbST8nzaNWM"/>

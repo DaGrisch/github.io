@@ -6,3 +6,6 @@ Arnold got famous, because he was body build word champion, called Mr. universum
 * Mr. Unisversum
 * Comes from austria
 * Married Lisa Marie Presly from the Kennedy Clan
+
+As Arnold said in Terminator:
+> I'll be back
